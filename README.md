@@ -20,7 +20,3 @@
 📧 [mf.mohammed.fazal@gmail.com](mailto:mf.mohammed.fazal@gmail.com)  
 💬 [LinkedIn](https://linkedin.com/in/mohammed--fazal)  
 📱 WhatsApp: +91-9652236648  
-
-### 🌙 Final Thought
-> “Put your trust in Allah, and Allah is sufficient as a Disposer of affairs.”  
-> — *Surah Al-Ahzab (33:3)*
